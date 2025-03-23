@@ -1,0 +1,1 @@
+Domácí úkol :Lekce 6 
